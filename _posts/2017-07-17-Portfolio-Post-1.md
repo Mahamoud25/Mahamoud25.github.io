@@ -7,4 +7,4 @@ tags: cute dog
 featured_image: '6244418481_dd9f3ed605_z.jpg'
 lead_text: 'm.shattock - Lazing on a sunny afternoon - Golden Doodle Elliott sleeping on the patio chair in the sunshire from flickr'
 ---
-This is a story about the sport I once loved.
+This is my good doggy (a picture that looks just like her). Hanging out.
